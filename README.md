@@ -18,7 +18,7 @@ _interesses_
 
 - vida marinha; 🦭
 
-- cozinha; 🧑‍🍳 🍰 🥮
+- cozinha;  🍰 
 
 - melodias; 🎼
   
